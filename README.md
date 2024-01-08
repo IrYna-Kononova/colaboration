@@ -10,7 +10,8 @@
 
 1. Paska (Easter Bread)
 2. Borscht
-3. Varenyky
+3. TRYING AAAAAAAAAAAAAAAAAAAAAAA
+
 
 **traditional Ukrainian restaurants can’t help themselves cooking lots and lots of borscht and varenyky**
 
@@ -18,5 +19,6 @@
 
 
 # Learning the hard way
+
 
 
